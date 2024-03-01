@@ -1,4 +1,4 @@
   - 🗂️ Some Project Repos are in private mode!
   - ✉️ Contact: agrawalprk@gmail.com
-  - ℹ️ LinkedIn: https://linkedin.com/in/prkagrawal
+  - LinkedIn: https://linkedin.com/in/prkagrawal
   - 💼 Work: Freelancing, Bhopal (MP)
